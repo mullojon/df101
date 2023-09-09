@@ -11,4 +11,4 @@ menya vchera sprosili, a ti ee lyubil?
 
 
 
-![Img](image.jpg)
+![Img](pamir-mountains3.jpg)
