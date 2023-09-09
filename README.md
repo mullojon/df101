@@ -1,5 +1,5 @@
 # df101
-menya vchera sprosili, ati ee lyubil?
+menya vchera sprosili, a ti ee lyubil?
 
 **bold** word
 
