@@ -8,3 +8,7 @@ menya vchera sprosili, a ti ee lyubil?
 
 1. list iten 1
 2. list iten 2
+
+
+
+![Img](image.jpg)
